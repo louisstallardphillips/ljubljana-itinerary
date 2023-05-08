@@ -29,7 +29,7 @@ Cycling
 4.68 16mins [Restaurant Hisa Pod Gradom](https://www.tripadvisor.co.uk/Restaurant_Review-g274873-d5508614-Reviews-Restaurant_Hisa_Pod_Gradom-Ljubljana_Upper_Carniola_Region.html) Dinner
 
 
-# Others
+# Other Restaurants
 ## Dinner
 4.91 12mins [JADRO Restaurant](https://www.tripadvisor.co.uk/Restaurant_Review-g274873-d23946043-Reviews-JADRO_Restaurant-Ljubljana_Upper_Carniola_Region.html) [Menu](https://jadro.choiceqr.com/menu)
 
