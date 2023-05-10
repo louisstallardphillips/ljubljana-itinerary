@@ -17,7 +17,7 @@
 Cycling
 
 ## Dinner
-4.64 9mins [Landerik](https://www.tripadvisor.co.uk/Restaurant_Review-g274873-d17476431-Reviews-Landerik-Ljubljana_Upper_Carniola_Region.html)
+4.68 16mins [Restaurant Hisa Pod Gradom](https://www.tripadvisor.co.uk/Restaurant_Review-g274873-d5508614-Reviews-Restaurant_Hisa_Pod_Gradom-Ljubljana_Upper_Carniola_Region.html)
 
 
 # June 5th
@@ -28,7 +28,7 @@ Cycling
 Cycling
 
 ## Dinner
-4.68 16mins [Restaurant Hisa Pod Gradom](https://www.tripadvisor.co.uk/Restaurant_Review-g274873-d5508614-Reviews-Restaurant_Hisa_Pod_Gradom-Ljubljana_Upper_Carniola_Region.html)
+4.64 9mins [Landerik](https://www.tripadvisor.co.uk/Restaurant_Review-g274873-d17476431-Reviews-Landerik-Ljubljana_Upper_Carniola_Region.html)
 
 
 # Other Restaurants
